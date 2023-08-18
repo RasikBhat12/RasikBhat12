@@ -10,6 +10,8 @@
 - 🌱 I’m currently learning **react**
 
 - 📫 How to reach me **rasikbhat794@gmail.com**
+- Address : Srinagar Jammu & Kashmir (190015)
+- Contact : +91-7006780891
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
